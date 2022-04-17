@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RobertG26
-- 👀 I’m interested in God
+- 👀 I’m interested in anybody's life
 - 🌱 I’m currently learning Phyton
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
